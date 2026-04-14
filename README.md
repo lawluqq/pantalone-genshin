@@ -8,9 +8,9 @@
 
 <div align="center">
  
- [inf](https://t.me/lawluqq)o
- [mus](https://t.me/MusikMainer)tg 
- [ata](https://atabook.org/features)book
+
+  𓆩[inf](https://t.me/lawluqq)o
+ [mus](https://t.me/MusikMainer)tg  [ata](https://atabook.org/features)book𓆪
 ㅤ  <div align="center">
 𖣻 ㅤ   ۪  ㅤ  ☁️ ㅤㅤㅤꖡㅤㅤ ۫ㅤㅤაㅤㅤㅤ
 
