@@ -22,7 +22,7 @@
 I'm having fun with cosplays in the game. 
 
 Hobbies: singing, needlework, sports
-What I'm looking for: sekai, Genshin, XSR, minecraft, a lot of anime and other Yakuza-type games and short stories 
+What I'm looking for: sekai, Genshin, HSR, minecraft, a lot of anime and other Yakuza-type games and short stories 
 
- I don't blame anyone for their choice, and so on and so forth, I don't mind friendship, just don't write to me for no reason, it's enough for me to just sit next to them.  I'm not judging for the skins. It doesn't matter who you are, an emo furry with closed bangs and so on.
+
 ‌<a href="https://ibb.co/rGSB5LtK"><img src="https://i.ibb.co/27QzcL60/IMG-20260414-161457.png" alt="IMG-20260414-161457" border="0"></a><br /><a target='_blank' href='https://ru.imgbb.com/'>
