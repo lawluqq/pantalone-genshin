@@ -11,4 +11,4 @@
 ꒰[ tiktok](https://www.tiktok.com/@qwizqx?_r=1&_t=ZS-96944Baq96w)꒱
 
    ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦
-<a href="https://ibb.co/Txn3bpmp"><img src="https://i.ibb.co/XrdR3NSN/143-20260508205757.png" alt="143-20260508205757" border="0"></a>
+<a href="https://ibb.co/qMq1wJTr"><img src="https://i.ibb.co/5WpcVKbR/143-20260508211334.png" alt="143-20260508211334" border="0"></a>
