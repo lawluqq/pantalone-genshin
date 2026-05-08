@@ -11,4 +11,8 @@
 ꒰[ tik](https://www.tiktok.com/@qwizqx?_r=1&_t=ZS-96944Baq96w)tok꒱
 
    ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦
+<div align="center">
 <a href="https://ibb.co/qMq1wJTr"><img src="https://i.ibb.co/5WpcVKbR/143-20260508211334.png" alt="143-20260508211334" border="0"></a>
+<div align="center">
+
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/ymLgph9G/fyolai-handholding.webp" alt="fyolai handholding" border="0"></a>
