@@ -6,9 +6,9 @@
 <div align="center">
  <a href="https://ibb.co/ZzvMCwy1"><img src="https://i.ibb.co/23RkBLXY/143-20260508205459.png" alt="143-20260508205459" border="0"></a> 
 
-  ꒰[ info ](https://t.me/lawluqq)꒱
-꒰[ music ](https://t.me/MusikMainer)꒱
-꒰[ tiktok](https://www.tiktok.com/@qwizqx?_r=1&_t=ZS-96944Baq96w)꒱
+  ꒰[ inf](https://t.me/lawluqq)o꒱
+꒰[ mus](https://t.me/MusikMainer)ik꒱
+꒰[ tik](https://www.tiktok.com/@qwizqx?_r=1&_t=ZS-96944Baq96w)tok꒱
 
    ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦
 <a href="https://ibb.co/qMq1wJTr"><img src="https://i.ibb.co/5WpcVKbR/143-20260508211334.png" alt="143-20260508211334" border="0"></a>
