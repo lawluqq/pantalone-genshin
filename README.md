@@ -15,5 +15,7 @@
 <a href="https://ibb.co/qMq1wJTr"><img src="https://i.ibb.co/5WpcVKbR/143-20260508211334.png" alt="143-20260508211334" border="0"></a>
 
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/ymLgph9G/fyolai-handholding.webp" alt="fyolai handholding" border="0"></a> 
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/nscK19bH/fyolai.gif" alt="fyolai" border="0"></a>
  <a href="https://imgbb.com/"><img src="https://i.ibb.co/SDWSzS7q/nikolai-gogol-nikolai.gif" alt="nikolai gogol nikolai" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/zTpBThVx/nikolai-nikolai-gogol.gif" alt="nikolai nikolai gogol" border="0"></a>
+<a href="https://ibb.co/21BzTtzh"><img src="https://i.ibb.co/Q3GW4NWQ/i-1.webp" alt="i-1" border="0"></a>
