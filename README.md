@@ -19,3 +19,5 @@
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/SDWSzS7q/nikolai-gogol-nikolai.gif" alt="nikolai gogol nikolai" border="0"></a>
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/zTpBThVx/nikolai-nikolai-gogol.gif" alt="nikolai nikolai gogol" border="0"></a>
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/1G940cDr/nikolai-bsd.gif" alt="nikolai bsd" border="0"></a>
+  
+   ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦ ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ──────────﻿
